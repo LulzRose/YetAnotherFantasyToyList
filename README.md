@@ -1,5 +1,5 @@
 # YetAnotherFantasyToyList
-
+ 
 ICON KEY:
 $'s indicate expense. $ indicates shops that are generally cheaper than BD, $$ is about the same as BD, and $$$ is generally more expensive than BD. Might not be 100% accurate, but I tried my best.
 🍩 's indicate shops that sell full-sized penetrables.
