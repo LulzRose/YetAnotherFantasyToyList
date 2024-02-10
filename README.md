@@ -50,6 +50,35 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 
 
+**Quality and Reviews:**
+- ★’s are given to shops with exceptionally high-quality products and a history of positive reviews.
+- ⛔️‘s indicate notoriously problematic shops.
+
+**Pricing:**
+- $'s indicate expense. 
+  - $: Generally cheaper than BD
+  - $$: About the same as BD
+  - $$$: Generally more expensive than BD (Note: Might not be 100% accurate, but I tried my best.)
+
+**Product Categories:**
+- 🍩 's indicate shops that sell full-sized penetrables.
+- 🥯's indicate mini penetrables.
+- 🍖's indicate wearables and/or cock rings.
+- 🥚's indicate eggs or kegel toys.
+- 🍡’s indicate ovipositors.
+- ⛲'s indicate toys with cum tubes.
+- 🎈's indicate toys with inflatable knots.
+- 🍆’s indicate packers.
+- 💗's indicate shops that have dual-density toys available.
+
+**Additional Notes:**
+- “‡” after a shop name indicates not all their products are made with 100% body-safe silicone. Some toys may have sterilization issues.
+- “↺” indicates a shop that sells knockoffs of existing toys.
+
+
+
+
+
 1. 1A Toys
    - [Website](https://example.com/1a-toys)
    - *Description: A German-based toy manufacturer.*
