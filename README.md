@@ -40,40 +40,33 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://shop.1atoys.net/)
 
 Akifu Toys -  - Germany
-   - [Etsy](https://www.etsy.com/shop/AkifuToys)
-   - [Website](https://akifu-toys.com/)
-   - [Twitter](https://twitter.com/akifu_toys)
+   - [Website](https://akifutoys.com/home.php) - [Etsy](https://www.etsy.com/shop/AkifuToys) - [Twitter](https://twitter.com/akifu_toys)
 
 A Krow’s Nest -  - US
-   - [Etsy](https://www.etsy.com/shop/AKrowsNest)
-   - [Website](https://akrowsnest.com/)
-   - [Twitter](https://twitter.com/AKrowsNest)
+   - [Website](https://akrowsnest.com/) - [Etsy](https://www.etsy.com/shop/AKrowsNest)
 
 All-Night Toys -  - US
-   - [Etsy](https://www.etsy.com/shop/AllNightToys)
-   - [Twitter](https://twitter.com/allnighttoys)
+   - [Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)
    - *Description: US-based shop offering diverse toys.*
 
 Amazing Beasts
-   - [Website](https://amazingbeasts.jp/)
+   - [Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)
    - *Description: Japanese toy manufacturer specializing in extraordinary creations.*
 
 Ambush Toys -  - US
-   - [Website](https://ambushtoys.com/)
-   - [Twitter](https://twitter.com/ambushtoys)
-   - [Instagram](https://instagram.com/ambushtoys)
+   - [Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)
    - *Description: US-based toy shop with a thrilling collection.*
 
 American Meat -  - US
-   - [Website](https://americanmeat.com/)
+   - [Website](https://www.americanmeat.com/)
    - *Description: Previously known as Dirty Internet Toys.*
 
 AO Enterprises -  - US
-   - [Etsy](https://www.etsy.com/shop/AOEnterprises)
+   - [Etsy](https://www.etsy.com/shop/aoenterprises)
    - *Description: Unique creations from the US.*
 
-Bat Bites Art -  - US
-   - [Website]()
+Bad Dragon -  - US
+   - [Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
 
 Bad Wolf
    - [Website](https://badwolf.com/)
