@@ -3,6 +3,7 @@
 
 
 ICON KEY:
+
  ★’s are given to shops with exceptionally high quality products and a history of positive reviews.
 
  $'s indicate expense. $ indicates shops that are generally cheaper than BD, $$ is about the same as BD, and $$$ is generally more expensive than BD. Might not be 100% accurate, but I tried my best.
