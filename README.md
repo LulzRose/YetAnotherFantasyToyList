@@ -36,36 +36,36 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 # Masterlist
 
-### **1A Toys -  - Germany**
+### 1A Toys -  - Germany
    - [Website](https://shop.1atoys.net/)
 
-Akifu Toys -  - Germany
+### Akifu Toys -  - Germany
    - [Website](https://akifutoys.com/home.php) - [Etsy](https://www.etsy.com/shop/AkifuToys) - [Twitter](https://twitter.com/akifu_toys)
 
-A Krow’s Nest -  - US
+### A Krow’s Nest -  - US
    - [Website](https://akrowsnest.com/) - [Etsy](https://www.etsy.com/shop/AKrowsNest)
 
-All-Night Toys -  - US
+### All-Night Toys -  - US
    - [Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)
    - *Description: US-based shop offering diverse toys.*
 
-Amazing Beasts
+### Amazing Beasts
    - [Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)
    - *Description: Japanese toy manufacturer specializing in extraordinary creations.*
 
-Ambush Toys -  - US
+### Ambush Toys -  - US
    - [Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)
    - *Description: US-based toy shop with a thrilling collection.*
 
-American Meat -  - US
+### American Meat -  - US
    - [Website](https://www.americanmeat.com/)
    - *Description: Previously known as Dirty Internet Toys.*
 
-AO Enterprises -  - US
+### AO Enterprises -  - US
    - [Etsy](https://www.etsy.com/shop/aoenterprises)
    - *Description: Unique creations from the US.*
 
-Bad Dragon -  - US
+### Bad Dragon -  - US
    - [Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
 
 Bad Wolf
