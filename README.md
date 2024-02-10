@@ -36,11 +36,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 # Masterlist
 
-1. 1A Toys
+1A Toys
    - [Website](https://example.com/1a-toys)
    - *Description: A German-based toy manufacturer.*
 
-2. Akifu Toys
+Akifu Toys
    - [Etsy](https://www.etsy.com/shop/AkifuToys)
    - [Website](https://akifu-toys.com/)
    - [Twitter](https://twitter.com/akifu_toys)
@@ -513,44 +513,44 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
     - [Twitter](https://twitter.com/monstersmashco)
     - *Description: UK-based creators of monstrous delights.*
 
-100. Moon Fox Toys
+Moon Fox Toys
     - [Website](https://moonfoxtoys.com/)
     - [Twitter](https://twitter.com/moonfoxtoys)
     - *Description: US-based creators inspired by the moon and foxes.*
 
-101. Moonset Creations
+Moonset Creations
     - [Etsy](https://www.etsy.com/shop/MoonsetCreations)
     - *Description: US-based creators of creations inspired by moonsets.*
 
-102. Mr. Hankey’s Toys
+Mr. Hankey’s Toys
     - [Etsy](https://www.etsy.com/shop/MrHankeysToys)
     - [Website](https://mrhankeystoys.com/)
     - [Twitter](https://twitter.com/mrhankeystoys)
     - *Description: US and UK-based creators of toys that leave a lasting impression.*
 
-103. My Myth Arts
+My Myth Arts
     - [Website](https://mymytharts.com/)
     - [Twitter](https://twitter.com/mymytharts)
     - *Description: Chinese creators of mythical and artistic toys.*
 
-104. Nameless Angel Works
+Nameless Angel Works
     - [Etsy](https://www.etsy.com/shop/NamelessAngelWorks)
     - *Description: UK-based creators of works from the nameless realm.*
 
-105. NaughtyFoxDE
+NaughtyFoxDE
     - [Website](https://naughtyfox.de/)
     - *Description: German creators of naughty delights.*
 
-106. Naughty Wolf Toys
+Naughty Wolf Toys
     - [Website](https://naughtywolf.toys/)
     - [Twitter](https://twitter.com/naughtywolf_toys)
     - *Description: EU-based creators of toys inspired by naughty wolves.*
 
-107. Nawty Toy Box
+Nawty Toy Box
     - [Etsy](https://www.etsy.com/shop/NawtyToyBox)
     - *Description: US-based box of nawty delights.*
 
-108. Neotori
+Neotori
     - [Etsy](https://www.etsy.com/shop/Neotori)
     - [Etsy2](https://www.etsy.com/shop/NeotoriToo)
     - [Website](https://neotori.com/)
@@ -558,46 +558,46 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
     - [FurAffinity](https://furaffinity.net/user/neotori)
     - *Description: German creators of neotoric delights.*
 
-109. NerdClimax‡
+NerdClimax‡
     - [Etsy](https://www.etsy.com/shop/NerdClimax)
     - [Twitter](https://twitter.com/nerdclimax)
     - [Facebook](https://facebook.com/nerdclimax)
     - *Description: US-based creators of nerdy climactic experiences.*
 
-110. New Folklore Silicone
+New Folklore Silicone
     - [Etsy](https://www.etsy.com/shop/NewFolkloreSilicone)
     - [Twitter](https://twitter.com/newfolkloresili)
     - *Description: US-based creators of folklore-inspired silicone creations.*
 
-111. Noodle Crafters
+Noodle Crafters
     - [Etsy](https://www.etsy.com/shop/NoodleCrafters)
     - [Twitter](https://twitter.com/noodlecrafters)
     - *Description: US-based crafters of noodle-inspired delights.*
 
-112. Nothosaur
+Nothosaur
     - [Website](https://nothosaur.com/)
     - *Description: Chinese creators of unique creations inspired by ancient sea reptiles.*
 
-113. Organotoy
+Organotoy
     - [Website](https://organotoy.com/)
     - [Twitter](https://twitter.com/organotoy)
     - *Description: German creators of organic-inspired toys.*
 
-114. Ourano Scopes
+Ourano Scopes
     - [Etsy](https://www.etsy.com/shop/OuranoScopes)
     - [Twitter](https://twitter.com/ouranoscopes)
     - *Description: Canadian creators of scopes into pleasure.*
 
-115. Paladin Pleasure Sculptors
+Paladin Pleasure Sculptors
     - [Website](https://paladinpleasuresculptors.com/)
     - [Twitter](https://twitter.com/paladinpleasure)
     - *Description: US-based creators sculpting pleasure for paladins.*
 
-116. Petit Vice
+Petit Vice
     - [Website](https://petitvice.com/)
     - *Description: French creators of petite and viced delights.*
 
-117. Phoenix Flame Creations (formerly Phoenix Flame Forge)
+Phoenix Flame Creations (formerly Phoenix Flame Forge)
     - [Website](https://phoenixflamecreations.com/)
     - [Etsy](https://www.etsy.com/shop/PhoenixFlameCreations)
     - [Twitter](https://twitter.com/pf_creations)
@@ -605,7 +605,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
     - [Facebook](https://facebook.com/phoenixflamecreations)
     - *Description: US-based creators forging creations with a phoenix's flame.*
 
-118. Phreak Club
+Phreak Club
     - [Website](https://phreakclub.com/)
     - [Etsy](https://www.etsy.com/shop/PhreakClub)
     - [Twitter](https://twitter.com/phreakclub)
@@ -613,249 +613,250 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
     - [Facebook](https://facebook.com/phreakclub)
     - *Description: UK-based club of phreaky creations.*
 
-119. Pink Box Toyshop (formerly Gems Little Pink Box)
+Pink Box Toyshop (formerly Gems Little Pink Box)
     - [Etsy](https://www.etsy.com/shop/PinkBoxToyshop)
     - [Twitter](https://twitter.com/pinkboxtoyshop)
     - *Description: UK-based toyshop with a pink twist.*
 
-120. Playing with Pleasure
+Playing with Pleasure
     - [Etsy](https://www.etsy.com/shop/PlayingWithPleasure)
     - *Description: Canadian creators playing with pleasure.*
 
-121. Pleasure Forge
+Pleasure Forge
     - [Website](https://pleasureforge.com/)
     - [Twitter](https://twitter.com/pleasureforge)
     - [Tumblr](https://pleasureforge.tumblr.com/)
     - *Description: US-based forge crafting pleasures.*
 
-122. Primal Hardwere
+Primal Hardwere
     - [Website](https://primalhardwere.com/)
     - [Twitter](https://twitter.com/primalhardwere)
     - *Description: US-based creators of primal and hard toys.*
 
-123. The Prince’s Court
+The Prince’s Court
     - [Website](https://theprincescourt.com/)
     - [Twitter](https://twitter.com/theprincescourt)
     - *Description: US-based court of princely pleasures.*
 
-124. Pris Toys
+Pris Toys
     - [Website](https://pris.toys/)
     - [Etsy](https://www.etsy.com/shop/PrisToys)
     - [Twitter](https://twitter.com/pris_toys)
     - [Instagram](https://instagram.com/pris_toys)
     - *Description: US-based creators offering toys inspired by pleasure.*
 
-125. Qimera Forge
+Qimera Forge
     - [Website](https://qimeraforge.com/)
     - [Twitter](https://twitter.com/qimeraforge)
     - [Instagram](https://instagram.com/qimeraforge)
     - [FurAffinity](https://furaffinity.net/user/qimeraforge)
     - *Description: US-based forge creating qimeric delights.*
 
-126. Ravenous Toys
+Ravenous Toys
     - [Etsy](https://www.etsy.com/shop/RavenousToys)
     - [Twitter](https://twitter.com/ravenoustoys)
     - *Description: US-based creators of toys that awaken ravenous desires.*
 
-127. Rcc Creations Shop
+Rcc Creations Shop
     - [Etsy](https://www.etsy.com/shop/RccCreationsShop)
     - *Description: US-based shop offering unique creations.*
 
-128. Red Panda Toys↺
+Red Panda Toys↺
     - [Website](https://redpandatoys.com/)
     - *Description: Brazilian creators of toys with a red panda twist.*
 
-129. Rexalpha
+Rexalpha
     - [Website](https://rexalpha.com/)
     - [Etsy](https://www.etsy.com/shop/Rexalpha)
     - [Twitter](https://twitter.com/rexalpha)
     - *Description: UK-based creators of rexcellent toys.*
 
-130. Salty Doggo
+Salty Doggo
     - [Etsy](https://www.etsy.com/shop/SaltyDoggo)
     - [Twitter](https://twitter.com/saltydoggodotcom)
     - *Description: Creators of salty delights.*
 
-131. Senmurv Studios
+Senmurv Studios
     - [Etsy](https://www.etsy.com/shop/SenmurvStudios)
     - [Twitter](https://twitter.com/senmurvstudios)
     - *Description: Creators of unique and mythical toys.*
 
-132. Sidewinder Creations
+Sidewinder Creations
     - [Website](https://sidewindercreations.com/)
     - *Description: German creators of sidewinding delights.*
 
-133. SilcArts
+SilcArts
     - [Etsy](https://www.etsy.com/shop/SilcArts)
     - [Twitter](https://twitter.com/silcarts)
     - [Instagram](https://instagram.com/silcarts)
     - [Facebook](https://facebook.com/silcarts)
     - *Description: US-based creators of artistic silicone creations.*
 
-134. Sinnovator
+Sinnovator
     - [Etsy](https://www.etsy.com/shop/Sinnovator)
     - [Twitter](https://twitter.com/sinnovator)
     - [Facebook](https://facebook.com/sinnovator)
     - *Description: UK-based creators of innovative and sinfully delightful toys.*
 
-135. Something Squishy Toys
+Something Squishy Toys
     - [Website](https://somethingsquishytoys.com/)
     - [Etsy](https://www.etsy.com/shop/SomethingSquishyToys)
     - [Twitter](https://twitter.com/squishytoys)
     - *Description: US-based creators of squishy delights.*
 
-136. Split Peaches
+Split Peaches
     - [Etsy](https://www.etsy.com/shop/SplitPeaches)
     - [Website](https://splitpeaches.com/)
     - [Twitter](https://twitter.com/splitpeaches)
     - *Description: US-based creators of uniquely shaped delights.*
 
-137. Stiff Love
+Stiff Love
     - [Etsy](https://www.etsy.com/shop/StiffLove)
     - *Description: US-based creators of stiffly loving toys.*
 
-138. Strange Bedfellas
+Strange Bedfellas
     - [Website](https://strangebedfellas.com/)
     - [Twitter](https://twitter.com/strangebedfella)
     - [Instagram](https://instagram.com/strangebedfellas)
     - *Description: US-based creators of strangely delightful toys.*
 
-139. Survey of the Cosmos
+Survey of the Cosmos
     - [Website](https://surveyofthecosmos.com/)
     - *Description: US-based surveyors of cosmic pleasures.*
 
-140. Tender Monster Toys
+Tender Monster Toys
     - [Website](https://tendermonstertoys.com/)
     - [Twitter](https://twitter.com/tendermonster)
     - *Description: Canadian creators of tender and monstrous toys.* (NEW)
 
-141. Tentickle Toys
+Tentickle Toys
     - [Website](https://tentickletoys.com/)
     - [Etsy](https://www.etsy.com/shop/TentickleToys)
     - [Twitter](https://twitter.com/tentickletoys)
     - *Description: UK-based creators of tentacled delights.*
 
-142. TopNotchDongs
+TopNotchDongs
     - [Etsy](https://www.etsy.com/shop/TopNotchDongs)
     - *Description: Czech creators of top-notch dongs.*
 
-143. Topped Toys
+Topped Toys
     - [Website](https://toppedtoys.com/)
     - [Twitter](https://twitter.com/toppedtoys)
     - *Description: Canadian creators of toys that are on top.*
 
-144. Twilight Meadow Creations
+Twilight Meadow Creations
     - [Website](https://twilightmeadowcreations.com/)
     - *Description: Swedish creators of creations inspired by twilight meadows.*
 
-145. Twin Tail Creations
+Twin Tail Creations
     - [Website](https://twintailcreations.com/)
     - [Twitter](https://twitter.com/twintailcreatio)
     - [Instagram](https://instagram.com/twintailcreations)
     - [FurAffinity](https://furaffinity.net/user/twintailcreations)
     - *Description: US-based creators of twin-tailed delights.*
 
-146. Twisted Beast
+Twisted Beast
     - [Website](https://twistedbeast.co.uk/)
     - [Twitter](https://twitter.com/twistedbeastuk)
     - *Description: UK-based creators of delightfully twisted toys.*
 
-147. Uberrime
+Uberrime
     - [Etsy](https://www.etsy.com/shop/Uberrime)
     - [Website](https://uberrime.com/)
     - [Twitter](https://twitter.com/uberrimedildos)
     - *Description: US-based creators offering superbly crafted toys.*
 
-148. Uncover Creations
+Uncover Creations
     - [Etsy](https://www.etsy.com/shop/UncoverCreations)
     - [Twitter](https://twitter.com/uncovercreation)
     - [Instagram](https://instagram.com/uncovercreations)
     - *Description: UK-based creators uncovering unique creations.* (NEW)
 
-149. VaaChar
+VaaChar
     - [Website](https://vaachar.com/)
     - [Twitter](https://twitter.com/vaachar)
     - *Description: German creators of vaachar-inspired toys.*
 
-150. Vagary Grove
+Vagary Grove
     - [Website](https://vagarygrove.com/)
     - [Twitter](https://twitter.com/vagarygrove)
     - *Description: UK-based creators of toys that roam with vagary.*
 
-151. Vaquero Toys
+Vaquero Toys
     - [Etsy](https://www.etsy.com/shop/VaqueroToys)
     - [Twitter](https://twitter.com/vaquerotoys)
     - [Tumblr](https://vaquerotoys.tumblr.com/)
     - *Description: Australian creators of toys with a vaquero twist.*
 
-152. Vex Toy
+Vex Toy
     - [Etsy](https://www.etsy.com/shop/VexToy)
     - *Description: Canadian creators of vexing delights.*
 
-153. Vulpini Design
+Vulpini Design
     - [Etsy](https://www.etsy.com/shop/VulpiniDesign)
     - *Description: US-based creators of designs inspired by vulpine delights.*
 
-154. Wandering Bard Toys
+Wandering Bard Toys
     - [Website](https://wanderingbardtoys.com/)
     - [Twitter](https://twitter.com/wanderingbardtoy)
     - *Description: US-based creators of toys that wander with a bard's spirit.*
 
-155. Warminside Creations
+Warminside Creations
     - [Etsy](https://www.etsy.com/shop/WarminsideCreations)
     - *Description: US-based creators warming up pleasure with unique creations.*
 
-156. Weird Toyz Shop
+Weird Toyz Shop
     - [Etsy](https://www.etsy.com/shop/WeirdToyzShop)
     - *Description: Czech creators of weirdly delightful toys.*
 
-157. Weredog
+Weredog
     - [Website](https://weredog.art/)
     - [Twitter](https://twitter.com/weredog_art)
     - *Description: UK-based creators of artful were-inspired toys.*
 
-158. The Wicked Hunt
+The Wicked Hunt
     - [Website](https://thewickedhunt.com/)
     - [Twitter](https://twitter.com/thewickedhunt)
     - *Description: US-based creators on a wicked hunt for pleasure.*
 
-159. Wicked Vixen
+Wicked Vixen
     - [Etsy](https://www.etsy.com/shop/WickedVixenToys)
     - *Description: US-based creators of wickedly delightful toys.*
 
-160. Wildo's Dildos (formerly Sabaist Dicks)
+Wildo's Dildos (formerly Sabaist Dicks)
     - [Etsy](https://www.etsy.com/shop/WildosDildos)
     - *Description: US-based creators of wild and unique dildos.*
 
-161. The Wonder Toys
+The Wonder Toys
     - [Etsy](https://www.etsy.com/shop/TheWonderToys)
     - *Description: Czech creators of wonderful toys.*
 
-162. Wyverns Vault
+Wyverns Vault
     - [Etsy](https://www.etsy.com/shop/WyvernsVault)
     - [Twitter](https://twitter.com/wyvernsvault)
     - *Description: Canadian creators of vaulted treasures inspired by wyverns.*
 
-163. XenoCat Artifacts
+XenoCat Artifacts
     - [Etsy](https://www.etsy.com/shop/XenoCatArtifacts)
     - [Website](https://xenocatartifacts.com/)
     - [Twitter](https://twitter.com/xenocatartifacts)
     - *Description: US-based creators of artifacts from alien cats.*
 
-164. Yiff Monkey
+Yiff Monkey
     - [Etsy](https://www.etsy.com/shop/YiffMonkey)
     - [Website](https://yiffmonkey.com/)
     - [Twitter](https://twitter.com/yiffmonkey)
     - *Description: US-based creators of monkeying delights.*
 
-165. Zetapaws‡
+Zetapaws‡
     - [Website](https://zetapaws.com/)
     - *Description: US-based creators of pawsitively delightful toys.*
 
-166. Zlotech
+Zlotech
     - [Etsy](https://www.etsy.com/shop/Zlotech)
     - [Twitter](https://twitter.com/zlotechtoys)
     - *Description: Dutch creators of technological delights.*
+
 
 
 
