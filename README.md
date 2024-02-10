@@ -13,9 +13,9 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 **Pricing:**
 - $'s indicate expense. 
-  - $: Generally cheaper than BD
-  - $$: About the same as BD
-  - $$$: Generally more expensive than BD (Note: Might not be 100% accurate, but I tried my best.)
+  - $: Generally cheaper than 
+  - $$: About the same as 
+  - $$$: Generally more expensive than  (Note: Might not be 100% accurate, but I tried my best.)
 
 **Product Categories:**
 - 🍩 's indicate shops that sell full-sized penetrables.
