@@ -12,10 +12,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 - ⛔️‘s indicate notoriously problematic shops.
 
 **Pricing:**
-- $'s indicate expense. 
-  - $: Generally cheaper than 
-  - $$: About the same as 
-  - $$$: Generally more expensive than  (Note: Might not be 100% accurate, but I tried my best.)
+- $'s indicate expense in USD (Note: Pricing may not be accurate). 
+  - $: Generally cheaper than $75.
+  - $$: Generally priced between $75 and $150.
+  - $$$: Generally priced between $150 and $225.
+  - $$$$: Generally priced higher than $225.
 
 **Product Categories:**
 - 🍩 's indicate shops that sell full-sized penetrables.
@@ -36,37 +37,37 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 # Masterlist
 
-### 1A Toys -  - Germany
-   - [Website](https://shop.1atoys.net/)
+### 1A Toys - $ - Germany  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://shop.1atoys.net/)
 
-### Akifu Toys -  - Germany
-   - [Website](https://akifutoys.com/home.php) - [Etsy](https://www.etsy.com/shop/AkifuToys) - [Twitter](https://twitter.com/akifu_toys)
+### Akifu Toys - $$$ - Germany  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://akifutoys.com/home.php) - [Etsy](https://www.etsy.com/shop/AkifuToys) - [Twitter](https://twitter.com/akifu_toys)
 
-### A Krow’s Nest -  - US
-   - [Website](https://akrowsnest.com/) - [Etsy](https://www.etsy.com/shop/AKrowsNest)
+### A Krow’s Nest - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://akrowsnest.com/) - [Etsy](https://www.etsy.com/shop/AKrowsNest)
 
-### All-Night Toys -  - US
-   - [Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)
-   - *Description: US-based shop offering diverse toys.*
+### All-Night Toys - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: US-based shop offering diverse toys.*
 
-### Amazing Beasts
-   - [Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)
-   - *Description: Japanese toy manufacturer specializing in extraordinary creations.*
+### Amazing Beasts - $ - Japan  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Japanese toy manufacturer specializing in extraordinary creations.*
 
-### Ambush Toys -  - US
-   - [Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)
-   - *Description: US-based toy shop with a thrilling collection.*
+### Ambush Toys - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: US-based toy shop with a thrilling collection.*
 
-### American Meat -  - US
-   - [Website](https://www.americanmeat.com/)
-   - *Description: Previously known as Dirty Internet Toys.*
+### American Meat - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.americanmeat.com/)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Previously known as Dirty Internet Toys.*
 
-### AO Enterprises -  - US
-   - [Etsy](https://www.etsy.com/shop/aoenterprises)
-   - *Description: Unique creations from the US.*
+### AO Enterprises - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/aoenterprises)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Unique creations from the US.*
 
-### Bad Dragon -  - US
-   - [Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
+### Bad Dragon - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
 
 Bad Wolf
    - [Website](https://badwolf.com/)
