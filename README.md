@@ -72,6 +72,9 @@ AO Enterprises -  - US
    - [Etsy](https://www.etsy.com/shop/AOEnterprises)
    - *Description: Unique creations from the US.*
 
+Bat Bites Art -  - US
+   - [Website]()
+
 Bad Wolf
    - [Website](https://badwolf.com/)
    - *Description: Polish-based toy manufacturer.*
