@@ -1,27 +1,9 @@
 # YetAnotherFantasyToyList
  - Note this list will have its formatting reworked soon! Monetary amounts and star system are being reworked.
 
-
-ICON KEY:
-
-⛔️‘s indicate notoriously problematic shops.
- - Bee’s Bizarre Bazaar: Poor quality and quality control, toys full of craft glitter
- - Desires Toys: Long wait times, harassment of customers
- - Foxy Rabbit Toys: Extreme wait times -  customers waiting years
- - Lovecrafters Toys: Poor quality, toys contain many airbubbles
- - NerdClimax: Poor quality and quality control
- - Moon Fox Toys: Aggression towards customers, questionable safety precautions, airbubbles
- - Organotoy: Poor quality control, poor CS, long wait times, extreme aggression towards customers, unsafe techniques that lead to peeling (airbrushing)
- - Zetapaws: Silicone quality questionable
-
-
-
-
-
 Credit for the original version of the list goes to https://twitter.com/fewhoneydew
 
 Note for Github Staff, this repository is a master list of fantasy sex toys for educational purposes only. This repo will never include any images of any toys in or out of use. 
-
 
 # Legend:
 
@@ -49,8 +31,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 **Additional Notes:**
 - “‡” after a shop name indicates not all their products are made with 100% body-safe silicone. Some toys may have sterilization issues.
 - “↺” indicates a shop that sells knockoffs of existing toys.
-
-
+- “*” indicates a note at the bottom of the list.
 
 
 # Masterlist
@@ -875,3 +856,15 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
     - [Etsy](https://www.etsy.com/shop/Zlotech)
     - [Twitter](https://twitter.com/zlotechtoys)
     - *Description: Dutch creators of technological delights.*
+
+
+
+# Notes:
+ - Bee’s Bizarre Bazaar: Poor quality and quality control, toys full of craft glitter
+ - Desires Toys: Long wait times, harassment of customers
+ - Foxy Rabbit Toys: Extreme wait times -  customers waiting years
+ - Lovecrafters Toys: Poor quality, toys contain many airbubbles
+ - NerdClimax: Poor quality and quality control
+ - Moon Fox Toys: Aggression towards customers, questionable safety precautions, airbubbles
+ - Organotoy: Poor quality control, poor CS, long wait times, extreme aggression towards customers, unsafe techniques that lead to peeling (airbrushing)
+ - Zetapaws: Silicone quality questionable
