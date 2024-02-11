@@ -1,4 +1,5 @@
 # YetAnotherFantasyToyList
+## THIS PROJECT IS WIP! Any listing that is still in bullet point format is currently unuasable!
  - Note this list will have its formatting reworked soon! Monetary amounts and star system are being reworked.
 
 Credit for the original version of the list goes to https://twitter.com/fewhoneydew
