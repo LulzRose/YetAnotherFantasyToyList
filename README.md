@@ -49,23 +49,23 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### All-Night Toys - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: US-based shop offering diverse toys.*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Amazing Beasts - $ - Japan  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Japanese toy manufacturer specializing in extraordinary creations.*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Ambush Toys - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: US-based toy shop with a thrilling collection.*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### American Meat - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.americanmeat.com/)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Previously known as Dirty Internet Toys.*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### AO Enterprises - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/aoenterprises)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Unique creations from the US.*
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Bad Dragon - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)  
