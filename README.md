@@ -522,7 +522,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/mrhankeystoys)
    - *Description: US and UK-based creators of toys that leave a lasting impression.*
 
-### My Myth Arts
+### My Myth Arts -  - China
    - [Website](https://mymytharts.com/)
    - [Twitter](https://twitter.com/mymytharts)
    - *Description: Chinese creators of mythical and artistic toys.*
@@ -655,7 +655,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/RccCreationsShop)
    - *Description: US-based shop offering unique creations.*
 
-### Red Panda Toys↺
+### Red Panda Toys↺ -  - Brazil
    - [Website](https://redpandatoys.com/)
    - *Description: Brazilian creators of toys with a red panda twist.*
 
@@ -729,7 +729,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/tentickletoys)
    - *Description: UK-based creators of tentacled delights.*
 
-### TopNotchDongs
+### TopNotchDongs -  - Czechia
    - [Etsy](https://www.etsy.com/shop/TopNotchDongs)
    - *Description: Czech creators of top-notch dongs.*
 
@@ -738,7 +738,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/toppedtoys)
    - *Description: Canadian creators of toys that are on top.*
 
-### Twilight Meadow Creations
+### Twilight Meadow Creations -  - Sweden
    - [Website](https://twilightmeadowcreations.com/)
    - *Description: Swedish creators of creations inspired by twilight meadows.*
 
@@ -782,7 +782,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Tumblr](https://vaquerotoys.tumblr.com/)
    - *Description: Australian creators of toys with a vaquero twist.*
 
-### Vex Toy
+### Vex Toy -  - Canada
    - [Etsy](https://www.etsy.com/shop/VexToy)
    - *Description: Canadian creators of vexing delights.*
 
@@ -799,7 +799,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/WarminsideCreations)
    - *Description: US-based creators warming up pleasure with unique creations.*
 
-### Weird Toyz Shop
+### Weird Toyz Shop -  - Czechia
    - [Etsy](https://www.etsy.com/shop/WeirdToyzShop)
    - *Description: Czech creators of weirdly delightful toys.*
 
@@ -821,7 +821,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/WildosDildos)
    - *Description: US-based creators of wild and unique dildos.*
 
-### The Wonder Toys
+### The Wonder Toys -  - Czechia
    - [Etsy](https://www.etsy.com/shop/TheWonderToys)
    - *Description: Czech creators of wonderful toys.*
 
