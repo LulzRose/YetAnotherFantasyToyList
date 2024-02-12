@@ -70,11 +70,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 ### Bad Dragon - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
 
-### Bad Wolf -  - Poland
-   - [Website](https://badwolf.com/)
+### Bad Wolf - $$ - Poland
+   - [Website](https://www.bad-wolf.com.pl/)
    - *Description: Polish-based toy manufacturer.*
 
-### Baphomet’s Workshop
+### Baphomet’s Workshop -  - Canada
    - [Website](https://baphometsworkshop.com/)
    - [Twitter](https://twitter.com/baphometstoyshop)
    - *Description: Canadian workshop creating distinctive toys.*
@@ -84,20 +84,20 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/batbitesart)
    - *Description: US-based artistry specializing in unique toys.*
 
-### The Beast Asylum
+### The Beast Asylum -  - UK
    - [Website](https://beastasylum.co.uk/)
    - *Description: UK-based asylum for exceptional toys.*
 
-### Bee’s Bizarre Bazaar‡
+### Bee’s Bizarre Bazaar‡ -  - UK
    - [Etsy](https://www.etsy.com/shop/BeesBizarreBazaar)
    - *Description: UK-based shop offering bizarre and unique items.*
 
-### Big Bad Boner
+### Big Bad Boner -  - Netherlands
    - [Etsy](https://www.etsy.com/shop/BigBadBoner)
    - [Website](https://bigbadboner.nl/)
    - *Description: Dutch shop providing bold and unique toys.*
 
-### Blackfang Labs
+### Blackfang Labs -  - Germany
    - [Etsy](https://www.etsy.com/shop/BlackfangLabs)
    - [Website](https://blackfanglabs.de/)
    - [Twitter](https://twitter.com/blackfanglabs)
@@ -113,7 +113,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/builtupbeasts)
    - *Description: US-based workshop crafting extraordinary toys.*
 
-### Canem Creations
+### Canem Creations -  - UK
    - [Etsy](https://www.etsy.com/shop/CanemCreations)
    - [Twitter](https://twitter.com/canemcreations)
    - *Description: UK-based creator of canine-inspired toys.*
@@ -145,11 +145,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/creatureftoys)
    - *Description: US-based toy shop with a focus on fantastical creatures.*
 
-### Creature Toys
+### Creature Toys -  - Germany
    - [Etsy](https://www.etsy.com/shop/CreatureToys)
    - *Description: German-based creators of creature-inspired toys.*
 
-### Cryptid Pleasures
+### Cryptid Pleasures -  - UK
    - [Website](https://cryptidpleasures.co.uk/)
    - [Twitter](https://twitter.com/cryptidpleasure)
    - *Description: UK-based shop exploring the pleasures of cryptids.*
@@ -167,17 +167,17 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://daringdildodesigns.com/)
    - *Description: US-based designers creating daring and unique toys.*
 
-### Darque Path
+### Darque Path -  - Australia
    - [Website](https://darquepath.com/)
    - [Twitter](https://twitter.com/darquepath)
    - *Description: Australian-based path to unique and dark delights.*
 
-### Dauntless Rooster
+### Dauntless Rooster -  - Netherlands
    - [Etsy](https://www.etsy.com/shop/DauntlessRooster)
    - [Website](https://dauntlessrooster.com/)
    - *Description: Dutch creators of dauntless toys.*
 
-### Deep Fantasies
+### Deep Fantasies -  - Canada
    - [Etsy](https://www.etsy.com/shop/DeepFantasies)
    - [Website](https://deepfantasies.ca/)
    - [Twitter](https://twitter.com/deepfantasies)
@@ -198,7 +198,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/dragonstide)
    - *Description: US-based brothel with a dragon-inspired twist.*
 
-### Drake’s Shop
+### Drake’s Shop -  - Russia
    - [Website](https://drakeshop.ru/)
    - [Twitter](https://twitter.com/drakeshop_ru)
    - *Description: Russian-based shop offering unique creations.*
@@ -216,11 +216,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://elypseart.com/)
    - *Description: US-based artistry creating unique pieces.*
 
-### Erasexa↺
+### Erasexa↺ -  - Russia
    - [Website](https://erasexa.ru/)
    - *Description: Russian creators of innovative toys.*
 
-### EroGeisha
+### EroGeisha -  - Canada
    - [Etsy](https://www.etsy.com/shop/EroGeisha)
    - [Website](https://erogeisha.com/)
    - *Description: Canadian creators of geisha-inspired toys.*
@@ -253,23 +253,22 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### Fantasy Grove -  - US
    - [Website](https://fantasygrove.com/)
-   - [Etsy](https://www.etsy.com/shop/FantasyGrove)
    - [Twitter](https://twitter.com/fantasygrove)
    - [Instagram](https://instagram.com/fantasygrove)
    - *Description: US-based grove of fantasy-inspired delights.*
 
-### Faux Phallus
+### Faux Phallus -  - Australia
    - [Website](https://fauxphallus.com/)
    - [Twitter](https://twitter.com/fauxphallus)
    - *Description: Australian-based creators of faux phalluses.*
 
-### Fera Daemon
+### Fera Daemon -  - France
    - [Website](https://feradaemon.com/)
    - [Twitter](https://twitter.com/feradaemon)
    - [Instagram](https://instagram.com/feradaemon)
    - *Description: French workshop crafting daemon-inspired toys.*
 
-### Feralized Toys
+### Feralized Toys -  - Germany
    - [Etsy](https://www.etsy.com/shop/FeralizedToys)
    - *Description: German-based creators of feralized toys.*
 
@@ -277,7 +276,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/FetishZone)
    - *Description: US-based zone for fetish-inspired toys.*
 
-### Fiendish Toys
+### Fiendish Toys -  - Canada
    - [Etsy](https://www.etsy.com/shop/FiendishToys)
    - [Twitter](https://twitter.com/fiendishtoys)
    - *Description: Canadian creators of fiendishly delightful toys.*
@@ -287,11 +286,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/firecrotchtoys)
    - *Description: US-based creators of fiery delights.*
 
-### Fleshjack
+### Fleshjack -  - Canada
    - [Website](https://fleshjack.com/)
    - *Description: Canadian manufacturer of unique pleasure products.*
 
-### Flurb!
+### Flurb! -  - EU
    - [Website](https://flurb.eu/)
    - *Description: EU-based creators of flurbulent toys.*
 
@@ -304,7 +303,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/FreakyFantasies)
    - *Description: US-based shop specializing in freaky fantasies.*
 
-### Frisk Toys
+### Frisk Toys -  - UK
    - [Website](https://frisktoys.com/)
    - [Twitter](https://twitter.com/frisktoys)
    - *Description: UK-based creators of frisky toys.*
@@ -320,18 +319,18 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/fromtheedgetoys)
    - *Description: US-based creators offering toys from the edge.*
 
-### Furry Style
+### Furry Style -  - Germany
    - [Website](https://furrystyle.com/)
    - *Description: German-based creators of furry-style toys.*
 
-### Gaudy Gryphon‡
+### Gaudy Gryphon‡ -  - UK
    - [Website](https://gaudygryphon.com/)
    - [Etsy](https://www.etsy.com/shop/GaudyGryphon)
    - [Twitter](https://twitter.com/gaudygryphon)
    - [Instagram](https://instagram.com/gaudygryphon)
    - *Description: UK-based shop with gaudy and gryphon-inspired creations.*
 
-### Geeky Sex Toys‡
+### Geeky Sex Toys‡ -  - Australia
    - [Etsy](https://www.etsy.com/shop/GeekySexToys)
    - [Website](https://geekysextoys.com/)
    - [Twitter](https://twitter.com/geekysextoys)
@@ -342,7 +341,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/gelatinouscreate)
    - *Description: US-based creators of gelatinous delights.*
 
-### Gorilla Machine
+### Gorilla Machine -  - Portugal
    - [Website](https://gorillamachine.com/)
    - [Twitter](https://twitter.com/gorillamachine)
    - *Description: Portuguese creators of machines with a gorilla twist.*
@@ -356,7 +355,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/happyholetoys)
    - *Description: US-based creators of toys that bring happiness.*
 
-### Happy Octopus Toys
+### Happy Octopus Toys -  - UK
    - [Etsy](https://www.etsy.com/shop/HappyOctopusToys)
    - *Description: UK-based creators of joyous octopus-inspired toys.*
 
@@ -385,27 +384,27 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Instagram](https://instagram.com/howlingrabbithole)
    - *Description: US-based rabbit hole of howling creations. Accepting commissions.*
 
-### Hyper Realistic Dildos
+### Hyper Realistic Dildos -  - UK
    - [Etsy](https://www.etsy.com/shop/HyperRealisticDildos)
    - *Description: UK-based creators of hyper-realistic dildos.*
 
-### Inumi Toys
+### Inumi Toys -  - Switzerland
    - [Etsy](https://www.etsy.com/shop/InumiToys)
    - *Description: Swiss creators of unique toys.*
 
-### Ivy Toys
+### Ivy Toys -  - Germany
    - [Etsy](https://www.etsy.com/shop/IvyToys)
    - *Description: German creators of ivy-inspired toys.*
 
-### JackOToy
+### JackOToy -  - France
    - [Etsy](https://www.etsy.com/shop/JackOToy)
    - *Description: French creators of Jack O' Toys.*
 
-### John Thomas Toys↺
+### John Thomas Toys↺ -  - UK
    - [Etsy](https://www.etsy.com/shop/JohnThomasToys)
    - *Description: UK-based creators of unique toys.*
 
-### JoyFlex Toys
+### JoyFlex Toys -  - Finland
    - [Etsy](https://www.etsy.com/shop/JoyFlexToys)
    - *Description: Finnish creators of joyfully flexible toys.*
 
@@ -413,11 +412,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/JoyStickAdultToys)
    - *Description: US-based creators of adult toys with a joy stick twist.*
 
-### Kink Forge
+### Kink Forge -  - UK
    - [Website](https://kinkforge.com/)
    - *Description: UK-based forge specializing in kinkiness.*
 
-### Kisu and Friends
+### Kisu and Friends -  - Finland
    - [Website](https://kisuandfriends.com/)
    - [Twitter](https://twitter.com/kisuandfriends)
    - *Description: Finnish creators of kissable toys and friends.*
@@ -426,7 +425,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/KitsuneComforts)
    - *Description: US-based comfort creators with a kitsune twist.*
 
-### Knotty Boy Toys
+### Knotty Boy Toys -  - Canada
    - [Etsy](https://www.etsy.com/shop/KnottyBoyToys)
    - *Description: Canadian creators of knotty delights.*
 
@@ -435,20 +434,24 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/kuduvoodoo)
    - *Description: US-based creators of voodoo-inspired toys.*
 
+### Lair of Lust -  - US
+   - [Etsy](https://www.etsy.com/shop/LairofLust)
+   - *Description: US-based lair of lustful creations.*
+
 ### LewdCo -  - US
    - [Etsy](https://www.etsy.com/shop/LewdCo)
    - *Description: US-based creators of lewd delights.*
 
-### Lair of Lust -  - US
-   - [Etsy](https://www.etsy.com/shop/LairofLust)
-   - *Description: US-based lair of lustful creations.*
+### Linger Tips -  - UK
+   - [Etsy](https://www.etsy.com/shop/LingerTips)
+   - *Description: UK-based creators of lingering tips.*
 
 ### Loot Cave Toys -  - US
    - [Website](https://lootcavetoys.com/)
    - [Twitter](https://twitter.com/lootcavetoys)
    - *Description: US-based creators of treasures from the loot cave.*
 
-### Lovecrafters Toys
+### Lovecrafters Toys -  - Canada
    - [Etsy](https://www.etsy.com/shop/LovecraftersToys)
    - [Twitter](https://twitter.com/lovecrafters)
    - *Description: Canadian creators inspired by Lovecraftian horrors.*
@@ -459,15 +462,11 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/lovemuscletoys)
    - *Description: US-based creators of love-inducing toys.*
 
-### Love Smiths Toys
+### Love Smiths Toys -  - France
    - [Etsy](https://www.etsy.com/shop/LoveSmithsToys)
    - [Website](https://lovesmithstoys.com/)
    - [Twitter](https://twitter.com/lovesmithstoys)
    - *Description: French creators of love-smithed toys.*
-
-### Linger Tips
-   - [Etsy](https://www.etsy.com/shop/LingerTips)
-   - *Description: UK-based creators of lingering tips.*
 
 ### Lycantasy -  - US
    - [Website](https://lycantasy.com/)
@@ -503,7 +502,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/mfadesigns)
    - *Description: US-based design studio with a focus on unique creations.*
 
-### Monster Smash
+### Monster Smash -  - UK
    - [Website](https://monstersmash.co.uk/)
    - [Twitter](https://twitter.com/monstersmashco)
    - *Description: UK-based creators of monstrous delights.*
@@ -528,15 +527,15 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/mymytharts)
    - *Description: Chinese creators of mythical and artistic toys.*
 
-### Nameless Angel Works
+### Nameless Angel Works -  - UK
    - [Etsy](https://www.etsy.com/shop/NamelessAngelWorks)
    - *Description: UK-based creators of works from the nameless realm.*
 
-### NaughtyFoxDE
+### NaughtyFoxDE -  - Germany
    - [Website](https://naughtyfox.de/)
    - *Description: German creators of naughty delights.*
 
-### Naughty Wolf Toys
+### Naughty Wolf Toys -  - EU
    - [Website](https://naughtywolf.toys/)
    - [Twitter](https://twitter.com/naughtywolf_toys)
    - *Description: EU-based creators of toys inspired by naughty wolves.*
@@ -545,7 +544,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/NawtyToyBox)
    - *Description: US-based box of nawty delights.*
 
-### Neotori
+### Neotori -  - Germany
    - [Etsy](https://www.etsy.com/shop/Neotori)
    - [Etsy2](https://www.etsy.com/shop/NeotoriToo)
    - [Website](https://neotori.com/)
@@ -573,12 +572,12 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://nothosaur.com/)
    - *Description: Chinese creators of unique creations inspired by ancient sea reptiles.*
 
-### Organotoy
+### Organotoy -  - Germany
    - [Website](https://organotoy.com/)
    - [Twitter](https://twitter.com/organotoy)
    - *Description: German creators of organic-inspired toys.*
 
-### Ourano Scopes
+### Ourano Scopes -  - Canada
    - [Etsy](https://www.etsy.com/shop/OuranoScopes)
    - [Twitter](https://twitter.com/ouranoscopes)
    - *Description: Canadian creators of scopes into pleasure.*
@@ -588,7 +587,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/paladinpleasure)
    - *Description: US-based creators sculpting pleasure for paladins.*
 
-### Petit Vice
+### Petit Vice -  - France
    - [Website](https://petitvice.com/)
    - *Description: French creators of petite and viced delights.*
 
@@ -600,7 +599,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Facebook](https://facebook.com/phoenixflamecreations)
    - *Description: US-based creators forging creations with a phoenix's flame.*
 
-### Phreak Club
+### Phreak Club -  - UK
    - [Website](https://phreakclub.com/)
    - [Etsy](https://www.etsy.com/shop/PhreakClub)
    - [Twitter](https://twitter.com/phreakclub)
@@ -608,12 +607,12 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Facebook](https://facebook.com/phreakclub)
    - *Description: UK-based club of phreaky creations.*
 
-### Pink Box Toyshop (formerly Gems Little Pink Box)
+### Pink Box Toyshop (formerly Gems Little Pink Box) -  - UK
    - [Etsy](https://www.etsy.com/shop/PinkBoxToyshop)
    - [Twitter](https://twitter.com/pinkboxtoyshop)
    - *Description: UK-based toyshop with a pink twist.*
 
-### Playing with Pleasure
+### Playing with Pleasure -  - Canada
    - [Etsy](https://www.etsy.com/shop/PlayingWithPleasure)
    - *Description: Canadian creators playing with pleasure.*
 
@@ -660,7 +659,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://redpandatoys.com/)
    - *Description: Brazilian creators of toys with a red panda twist.*
 
-### Rexalpha
+### Rexalpha -  - UK
    - [Website](https://rexalpha.com/)
    - [Etsy](https://www.etsy.com/shop/Rexalpha)
    - [Twitter](https://twitter.com/rexalpha)
@@ -676,7 +675,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/senmurvstudios)
    - *Description: Creators of unique and mythical toys.*
 
-### Sidewinder Creations
+### Sidewinder Creations -  - Germany
    - [Website](https://sidewindercreations.com/)
    - *Description: German creators of sidewinding delights.*
 
@@ -687,7 +686,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Facebook](https://facebook.com/silcarts)
    - *Description: US-based creators of artistic silicone creations.*
 
-### Sinnovator
+### Sinnovator -  - UK
    - [Etsy](https://www.etsy.com/shop/Sinnovator)
    - [Twitter](https://twitter.com/sinnovator)
    - [Facebook](https://facebook.com/sinnovator)
@@ -719,12 +718,12 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://surveyofthecosmos.com/)
    - *Description: US-based surveyors of cosmic pleasures.*
 
-### Tender Monster Toys
+### Tender Monster Toys -  - Canada
    - [Website](https://tendermonstertoys.com/)
    - [Twitter](https://twitter.com/tendermonster)
    - *Description: Canadian creators of tender and monstrous toys.* (NEW)
 
-### Tentickle Toys
+### Tentickle Toys -  - UK
    - [Website](https://tentickletoys.com/)
    - [Etsy](https://www.etsy.com/shop/TentickleToys)
    - [Twitter](https://twitter.com/tentickletoys)
@@ -734,7 +733,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/TopNotchDongs)
    - *Description: Czech creators of top-notch dongs.*
 
-### Topped Toys
+### Topped Toys -  - Canada
    - [Website](https://toppedtoys.com/)
    - [Twitter](https://twitter.com/toppedtoys)
    - *Description: Canadian creators of toys that are on top.*
@@ -750,7 +749,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [FurAffinity](https://furaffinity.net/user/twintailcreations)
    - *Description: US-based creators of twin-tailed delights.*
 
-### Twisted Beast
+### Twisted Beast -  - UK
    - [Website](https://twistedbeast.co.uk/)
    - [Twitter](https://twitter.com/twistedbeastuk)
    - *Description: UK-based creators of delightfully twisted toys.*
@@ -761,23 +760,23 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/uberrimedildos)
    - *Description: US-based creators offering superbly crafted toys.*
 
-### Uncover Creations
+### Uncover Creations -  - UK
    - [Etsy](https://www.etsy.com/shop/UncoverCreations)
    - [Twitter](https://twitter.com/uncovercreation)
    - [Instagram](https://instagram.com/uncovercreations)
    - *Description: UK-based creators uncovering unique creations.* (NEW)
 
-### VaaChar
+### VaaChar -  - Germany
    - [Website](https://vaachar.com/)
    - [Twitter](https://twitter.com/vaachar)
    - *Description: German creators of vaachar-inspired toys.*
 
-### Vagary Grove
+### Vagary Grove -  - UK
    - [Website](https://vagarygrove.com/)
    - [Twitter](https://twitter.com/vagarygrove)
    - *Description: UK-based creators of toys that roam with vagary.*
 
-### Vaquero Toys
+### Vaquero Toys -  - Australia
    - [Etsy](https://www.etsy.com/shop/VaqueroToys)
    - [Twitter](https://twitter.com/vaquerotoys)
    - [Tumblr](https://vaquerotoys.tumblr.com/)
@@ -804,7 +803,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/WeirdToyzShop)
    - *Description: Czech creators of weirdly delightful toys.*
 
-### Weredog
+### Weredog -  - UK
    - [Website](https://weredog.art/)
    - [Twitter](https://twitter.com/weredog_art)
    - *Description: UK-based creators of artful were-inspired toys.*
@@ -826,7 +825,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Etsy](https://www.etsy.com/shop/TheWonderToys)
    - *Description: Czech creators of wonderful toys.*
 
-### Wyverns Vault
+### Wyverns Vault -  - Canada
    - [Etsy](https://www.etsy.com/shop/WyvernsVault)
    - [Twitter](https://twitter.com/wyvernsvault)
    - *Description: Canadian creators of vaulted treasures inspired by wyverns.*
@@ -847,7 +846,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://zetapaws.com/)
    - *Description: US-based creators of pawsitively delightful toys.*
 
-### Zlotech
+### Zlotech -  - Netherlands
    - [Etsy](https://www.etsy.com/shop/Zlotech)
    - [Twitter](https://twitter.com/zlotechtoys)
    - *Description: Dutch creators of technological delights.*
