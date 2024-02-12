@@ -38,7 +38,7 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 # Masterlist
 
-### 1A Toys - $ - Germany  
+### 1A Toys - $ - Germany - Not Fantasy  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://shop.1atoys.net/)
 
 ### Akifu Toys - $$$ - Germany  
