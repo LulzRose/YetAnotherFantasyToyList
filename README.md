@@ -68,33 +68,31 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Description: Unique creations from the US.*
 
 ### Bad Dragon - $$ - US  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
-### Bad Wolf - $$ - Poland
-   - [Website](https://www.bad-wolf.com.pl/)
-   - *Description: Polish-based toy manufacturer.*
+### Bad Wolf - $$ - Poland  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.bad-wolf.com.pl/)
 
-### Baphomet’s Workshop -  - Canada
-   - [Website](https://baphometsworkshop.com/)
-   - [Twitter](https://twitter.com/baphometstoyshop)
-   - *Description: Canadian workshop creating distinctive toys.*
+### Baphomet’s Workshop - $ - Canada
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://baphometsworkshop.com/) - [Twitter](https://twitter.com/BWSilicone)
 
-### Bat Bites Art -  - US
-   - [Website](https://batbitesart.com/)
-   - [Twitter](https://twitter.com/batbitesart)
+### Bat Bites Art - $ - US
+   - [Website](https://batbites.art/)
+   - [Twitter](https://twitter.com/battybits)
    - *Description: US-based artistry specializing in unique toys.*
 
-### The Beast Asylum -  - UK
-   - [Website](https://beastasylum.co.uk/)
+### The Beast Asylum - $$ - UK
+   - [Website](https://www.thebeastasylum.com/)
    - *Description: UK-based asylum for exceptional toys.*
 
-### Bee’s Bizarre Bazaar‡ -  - UK
+### Bee’s Bizarre Bazaar‡ - $ - UK
    - [Etsy](https://www.etsy.com/shop/BeesBizarreBazaar)
    - *Description: UK-based shop offering bizarre and unique items.*
 
-### Big Bad Boner -  - Netherlands
+### Big Bad Boner - $ - Netherlands
    - [Etsy](https://www.etsy.com/shop/BigBadBoner)
-   - [Website](https://bigbadboner.nl/)
+   - [Website](https://bigbadboner.com/)
    - *Description: Dutch shop providing bold and unique toys.*
 
 ### Blackfang Labs -  - Germany
