@@ -61,7 +61,6 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### AO Enterprises - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/aoenterprises)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Bad Dragon - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://bad-dragon.com/) - [Twitter](https://twitter.com/bad_dragon)  
