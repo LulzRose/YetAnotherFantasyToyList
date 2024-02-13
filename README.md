@@ -49,19 +49,15 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### All-Night Toys - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://allnight.toys/) - [Twitter](https://twitter.com/allnighttoys)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Amazing Beasts - $ - Japan  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.kanojotoys.com/advanced_search_result.php?keywords=amazing+beasts)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### Ambush Toys - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://ambushtoys.com/) - [Twitter](https://twitter.com/ambushtoys) - [Instagram](https://www.instagram.com/ambushtoys/)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### American Meat - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.americanmeat.com/)  
-&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;
 
 ### AO Enterprises - $$ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/aoenterprises)  
