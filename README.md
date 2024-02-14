@@ -72,23 +72,17 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 ### Baphomet’s Workshop - $ - Canada
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://baphometsworkshop.com/) - [Twitter](https://twitter.com/BWSilicone)
 
-### Bat Bites Art - $ - US
-   - [Website](https://batbites.art/)
-   - [Twitter](https://twitter.com/battybits)
-   - *Description: US-based artistry specializing in unique toys.*
+### Bat Bites Art - $ - US  
+[Website](https://batbites.art/) - [Twitter](https://twitter.com/battybits)
 
-### The Beast Asylum - $$ - UK
-   - [Website](https://www.thebeastasylum.com/)
-   - *Description: UK-based asylum for exceptional toys.*
+### The Beast Asylum - $$ - UK  
+[Website](https://www.thebeastasylum.com/)
 
-### Bee’s Bizarre Bazaar‡ - $ - UK
-   - [Etsy](https://www.etsy.com/shop/BeesBizarreBazaar)
-   - *Description: UK-based shop offering bizarre and unique items.*
+### ⛔️ Bee’s Bizarre Bazaar‡ - $ - UK  
+[Etsy](https://www.etsy.com/shop/BeesBizarreBazaar)
 
-### Big Bad Boner - $ - Netherlands
-   - [Etsy](https://www.etsy.com/shop/BigBadBoner)
-   - [Website](https://bigbadboner.com/)
-   - *Description: Dutch shop providing bold and unique toys.*
+### Big Bad Boner - $ - Netherlands  
+[Etsy](https://www.etsy.com/shop/BigBadBoner) - [Website](https://bigbadboner.com/)
 
 ### Blackfang Labs -  - Germany
    - [Etsy](https://www.etsy.com/shop/BlackfangLabs)
