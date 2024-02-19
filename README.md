@@ -80,163 +80,131 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### ⛔️ Bee’s Bizarre Bazaar‡ - $ - UK  
 [Etsy](https://www.etsy.com/shop/BeesBizarreBazaar)
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
 ### Big Bad Boner - $ - Netherlands  
 [Etsy](https://www.etsy.com/shop/BigBadBoner) - [Website](https://bigbadboner.com/)
 
-### Blackfang Labs -  - Germany
+### Blackfang Labs - $ - Germany
    - [Etsy](https://www.etsy.com/shop/BlackfangLabs)
-   - [Website](https://blackfanglabs.de/)
+   - [Website](https://blackfanglabs.net/)
    - [Twitter](https://twitter.com/blackfanglabs)
-   - *Description: German laboratory producing cutting-edge toys.*
 
-### Bratty Batty’s -  - US
-   - [Etsy](https://www.etsy.com/shop/BrattyBattys)
-   - [Twitter](https://twitter.com/brattybattys)
-   - *Description: Unique creations from the US.*
+### Built Up Beasts - $$ - US
+   - [Website](https://www.builtupbeasts.com/)
+   - [Twitter](https://twitter.com/Built_Up_Beasts/)
 
-### Built Up Beasts -  - US
-   - [Website](https://builtupbeasts.com/)
-   - [Twitter](https://twitter.com/builtupbeasts)
-   - *Description: US-based workshop crafting extraordinary toys.*
-
-### Canem Creations -  - UK
-   - [Etsy](https://www.etsy.com/shop/CanemCreations)
+### Canem Creations - $$ - UK
+   - [Etsy](https://www.etsy.com/shop/canemcreations)
    - [Twitter](https://twitter.com/canemcreations)
-   - *Description: UK-based creator of canine-inspired toys.*
 
-### Carnal Compendium (Formerly All For Naughty) -  - US
+### Carnal Compendium - $ - US
    - [Website](https://carnalcompendium.com/)
-   - [Etsy](https://www.etsy.com/shop/CarnalCompendium)
-   - [Twitter](https://twitter.com/carnalcompend)
-   - *Description: US-based shop offering a compendium of naughty delights.*
+   - [Twitter](https://twitter.com/carnalcompendia)
+   - *Formerly All For Naughty*
 
-### Chillow Fantasy -  - US
-   - [Etsy](https://www.etsy.com/shop/ChillowFantasy)
+### Chillow Fantasy - $ - US
+   - [Etsy](https://www.etsy.com/shop/chillowfantasyy)
    - [Website](https://chillowfantasy.com/)
    - [Twitter](https://twitter.com/chillowfantasy)
-   - *Description: US-based fantasy-themed toy creator.*
 
-### Concocktions -  - US
-   - [Website](https://concocktions.com/)
-   - [Twitter](https://twitter.com/concocktions)
-   - *Description: US-based creator of unique concoctions.*
+### Concocktions - $ - US
+   - [Website](https://concocktions.myshopify.com/)
+   - [Twitter](https://twitter.com/concocktionsllc)
 
-### The Crafty Hedonist -  - US
-   - [Etsy](https://www.etsy.com/shop/CraftyHedonist)
+### The Crafty Hedonist - $$ - US
+   - [Etsy](https://www.etsy.com/shop/TheCraftyHedonist)
    - [Twitter](https://twitter.com/craftyhedonist)
-   - *Description: US-based artisan crafting hedonistic delights.*
 
-### Creature Feature Toys -  - US
+### Creature Feature Toys - $$ - US
    - [Website](https://creaturefeaturetoys.com/)
-   - [Twitter](https://twitter.com/creatureftoys)
-   - *Description: US-based toy shop with a focus on fantastical creatures.*
+   - [Twitter](https://twitter.com/_CFToys)
 
-### Creature Toys -  - Germany
+### Creature Toys - $ - Germany
    - [Etsy](https://www.etsy.com/shop/CreatureToys)
-   - *Description: German-based creators of creature-inspired toys.*
 
-### Cryptid Pleasures -  - UK
-   - [Website](https://cryptidpleasures.co.uk/)
-   - [Twitter](https://twitter.com/cryptidpleasure)
-   - *Description: UK-based shop exploring the pleasures of cryptids.*
+### Cryptid Pleasures - $$ - UK
+   - [Website](https://www.cryptidpleasures.com/)
+   - [Twitter](https://twitter.com/CryptidPleasure)
 
-### Cultured Fiction Labs (Formerly Two Four Love) -  - US
+### Cultured Fiction Labs - $$ - US
    - [Website](https://culturedfictionlabs.com/)
-   - [Twitter](https://twitter.com/culturedfiction)
-   - *Description: US-based lab specializing in cultured and fictional creations.*
+   - [Twitter](https://twitter.com/CulturedFiction)
+   - *Formerly Two Four Love*
 
 ### Darker Horse Designs -  - US
    - [Website](https://darkerhorsedesigns.com/)
-   - *Description: US-based design studio with darker and unique creations.*
 
 ### Daring Dildo Designs -  - US
    - [Website](https://daringdildodesigns.com/)
-   - *Description: US-based designers creating daring and unique toys.*
 
 ### Darque Path -  - Australia
    - [Website](https://darquepath.com/)
    - [Twitter](https://twitter.com/darquepath)
-   - *Description: Australian-based path to unique and dark delights.*
 
 ### Dauntless Rooster -  - Netherlands
    - [Etsy](https://www.etsy.com/shop/DauntlessRooster)
    - [Website](https://dauntlessrooster.com/)
-   - *Description: Dutch creators of dauntless toys.*
 
 ### Deep Fantasies -  - Canada
    - [Etsy](https://www.etsy.com/shop/DeepFantasies)
    - [Website](https://deepfantasies.ca/)
    - [Twitter](https://twitter.com/deepfantasies)
    - [Instagram](https://instagram.com/deepfantasies)
-   - *Description: Canadian shop delving into deep fantasies.*
 
-### Desires Toys (Formerly Driving Desires) -  - US
+### Desires Toys -  - US
    - [Website](https://desirestoys.com/)
    - [Twitter](https://twitter.com/desirestoys)
-   - *Description: US-based shop catering to diverse desires.*
+   - *Formerly Driving Desires*
 
 ### Dong Deals NY -  - US
    - [Etsy](https://www.etsy.com/shop/DongDealsNY)
-   - *Description: US-based shop offering unique deals on dongs.*
 
 ### Dragon’s Tide Brothel -  - US
    - [Etsy](https://www.etsy.com/shop/DragonsTideBrothel)
    - [Twitter](https://twitter.com/dragonstide)
-   - *Description: US-based brothel with a dragon-inspired twist.*
 
 ### Drake’s Shop -  - Russia
    - [Website](https://drakeshop.ru/)
    - [Twitter](https://twitter.com/drakeshop_ru)
-   - *Description: Russian-based shop offering unique creations.*
 
 ### Dread the Empire -  - US
    - [Website](https://dreadtheempire.com/)
    - [Twitter](https://twitter.com/dreadtheempire)
-   - *Description: US-based empire of dread-inducing toys.*
 
 ### Dungeons and Dildos -  - US
    - [Etsy](https://www.etsy.com/shop/DungeonsAndDildos)
-   - *Description: US-based shop blending fantasy and pleasure.*
 
 ### Elypse Art -  - US
    - [Website](https://elypseart.com/)
-   - *Description: US-based artistry creating unique pieces.*
 
 ### Erasexa↺ -  - Russia
    - [Website](https://erasexa.ru/)
-   - *Description: Russian creators of innovative toys.*
 
 ### EroGeisha -  - Canada
    - [Etsy](https://www.etsy.com/shop/EroGeisha)
    - [Website](https://erogeisha.com/)
-   - *Description: Canadian creators of geisha-inspired toys.*
 
 ### Exotic-Erotics -  - US
    - [Website](https://exotic-erotics.com/)
    - [Twitter](https://twitter.com/exoticerotics)
    - [Tumblr](https://exotic-erotics.tumblr.com/)
-   - *Description: US-based exotic and erotic toy manufacturer.*
 
 ### Factory D -  - US
    - [Etsy](https://www.etsy.com/shop/FactoryD)
    - [Twitter](https://twitter.com/factorydtoys)
-   - *Description: US-based factory producing distinct toys.*
 
 ### Fantasticocks -  - US
    - [Etsy](https://www.etsy.com/shop/Fantasticocks)
    - [Twitter](https://twitter.com/fantasticocks)
    - [Instagram](https://instagram.com/fantasticocks)
-   - *Description: US-based creators of fantastic cocks.*
 
 ### Fantasy Dangus -  - US
    - [Etsy](https://www.etsy.com/shop/FantasyDangus)
-   - *Description: US-based shop specializing in fantasy dangus.*
 
 ### Fantanum Adult Toys -  - US
    - [Etsy](https://www.etsy.com/shop/FantanumAdultToys)
    - [Twitter](https://twitter.com/fantanumtoys)
-   - *Description: US-based shop offering adult toys with a fantastical touch.*
 
 ### Fantasy Grove -  - US
    - [Website](https://fantasygrove.com/)
