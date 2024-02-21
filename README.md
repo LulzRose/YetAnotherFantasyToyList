@@ -138,57 +138,44 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 ### Daring Dildo Designs -  - US
    - [Website](https://daringdildodesigns.com/)
 
-### Darque Path -  - Australia
-   - [Website](https://darquepath.com/)
+### Darque Path - $ - Australia
+   - [Website](https://darquepath.com.au/)
    - [Twitter](https://twitter.com/darquepath)
 
-### Dauntless Rooster -  - Netherlands
-   - [Etsy](https://www.etsy.com/shop/DauntlessRooster)
-   - [Website](https://dauntlessrooster.com/)
+### Deep Fantasies - $$ - Canada
+   - [Etsy](https://www.etsy.com/shop/deepfantasies)
+   - [Website](https://deepfantasies.com/)
+   - [Instagram](https://www.instagram.com/deepfantasiesyeg/)
 
-### Deep Fantasies -  - Canada
-   - [Etsy](https://www.etsy.com/shop/DeepFantasies)
-   - [Website](https://deepfantasies.ca/)
-   - [Twitter](https://twitter.com/deepfantasies)
-   - [Instagram](https://instagram.com/deepfantasies)
-
-### Desires Toys -  - US
+### ⛔️ Desires Toys - $$$ - US
    - [Website](https://desirestoys.com/)
    - [Twitter](https://twitter.com/desirestoys)
    - *Formerly Driving Desires*
 
-### Dong Deals NY -  - US
-   - [Etsy](https://www.etsy.com/shop/DongDealsNY)
+### Dong Deals NY - $ - US - Not Fantasy
+   - [Etsy](https://www.etsy.com/shop/dongdealsny)
 
-### Dragon’s Tide Brothel -  - US
-   - [Etsy](https://www.etsy.com/shop/DragonsTideBrothel)
-   - [Twitter](https://twitter.com/dragonstide)
+### Drake’s Shop - $$ - Russia
+   - [Website](https://drakeshop.net/en)
+   - [Twitter](https://twitter.com/DrakToxx)
 
-### Drake’s Shop -  - Russia
-   - [Website](https://drakeshop.ru/)
-   - [Twitter](https://twitter.com/drakeshop_ru)
-
-### Dread the Empire -  - US
-   - [Website](https://dreadtheempire.com/)
+### Dread the Empire - $$ - US
+   - [Website](http://dread-the-empire.com/)
    - [Twitter](https://twitter.com/dreadtheempire)
 
-### Dungeons and Dildos -  - US
-   - [Etsy](https://www.etsy.com/shop/DungeonsAndDildos)
+### Elypse Art - $$$ - US
+   - [Website](http://www.elypseart.com/)
 
-### Elypse Art -  - US
-   - [Website](https://elypseart.com/)
+### Erasexa↺ - $$ - Russia
+   - [Website](https://en.erasexa.com/)
 
-### Erasexa↺ -  - Russia
-   - [Website](https://erasexa.ru/)
-
-### EroGeisha -  - Canada
+### EroGeisha - $ - Canada
    - [Etsy](https://www.etsy.com/shop/EroGeisha)
    - [Website](https://erogeisha.com/)
 
-### Exotic-Erotics -  - US
-   - [Website](https://exotic-erotics.com/)
-   - [Twitter](https://twitter.com/exoticerotics)
-   - [Tumblr](https://exotic-erotics.tumblr.com/)
+### Exotic-Erotics - $$ - US
+   - [Website](https://www.exotic-erotics.com/store/)
+   - [Twitter](https://twitter.com/exotic_erotics)
 
 ### Factory D -  - US
    - [Etsy](https://www.etsy.com/shop/FactoryD)
