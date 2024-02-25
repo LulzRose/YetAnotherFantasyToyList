@@ -160,55 +160,47 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 ### Factory D - $ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FactoryD) - [Twitter](https://twitter.com/factorydix)
 
-### Fantasticocks -  - US
+### Fantasticocks - $ - US
    - [Etsy](https://www.etsy.com/shop/Fantasticocks)
-   - [Twitter](https://twitter.com/fantasticocks)
-   - [Instagram](https://instagram.com/fantasticocks)
+   - [Twitter](https://twitter.com/fantasticocks1)
+   - [Instagram](https://www.instagram.com/fantasticocks/)
 
-### Fantasy Dangus -  - US
+### Fantasy Dangus - $$$$ - US
    - [Etsy](https://www.etsy.com/shop/FantasyDangus)
 
-### Fantanum Adult Toys -  - US
-   - [Etsy](https://www.etsy.com/shop/FantanumAdultToys)
-   - [Twitter](https://twitter.com/fantanumtoys)
-
-### Fantasy Grove -  - US
+### Fantasy Grove - $$ - US
    - [Website](https://fantasygrove.com/)
-   - [Twitter](https://twitter.com/fantasygrove)
-   - [Instagram](https://instagram.com/fantasygrove)
+   - [Twitter](https://twitter.com/GroveFantasy)
+   - [Instagram](https://www.instagram.com/fantasygrovetoys/)
 
-### Faux Phallus -  - Australia
-   - [Website](https://fauxphallus.com/)
+### Faux Phallus - $$ - Australia
+   - [Website](https://fauxphallus.com.au/)
    - [Twitter](https://twitter.com/fauxphallus)
 
-### Fera Daemon -  - France
-   - [Website](https://feradaemon.com/)
-   - [Twitter](https://twitter.com/feradaemon)
-   - [Instagram](https://instagram.com/feradaemon)
+### Fera Daemon - $$ - France
+   - [Website](https://fera-daemon.com/)
+   - [Twitter](https://twitter.com/Fera_Daemon)
+   - [Instagram](https://www.instagram.com/fera_daemon/)
 
-### Feralized Toys -  - Germany
-   - [Etsy](https://www.etsy.com/shop/FeralizedToys)
+### Feralized Toys - $$ - Germany
+   - [Etsy](https://www.etsy.com/shop/feralizedtoys)
 
-### Fetish Zone -  - US
-   - [Etsy](https://www.etsy.com/shop/FetishZone)
+### Fetish Zone - $$ - US
+   - [Website](https://www.fetishzone.net/store/all-fetishzone-toys-c-419/)
 
-### Fiendish Toys -  - Canada
-   - [Etsy](https://www.etsy.com/shop/FiendishToys)
-   - [Twitter](https://twitter.com/fiendishtoys)
+### Fiendish Toys - $ - Canada
+   - [Etsy](https://www.etsy.com/ca/shop/FiendishToyCo)
+   - [Twitter](https://twitter.com/fiendish_toys)
 
-### Fire Crotch Toys -  - US
-   - [Website](https://firecrotchtoys.com/)
-   - [Twitter](https://twitter.com/firecrotchtoys)
+### Fleshjack - $$ - Canada
+   - [Website](https://www.fleshjack.ca/)
 
-### Fleshjack -  - Canada
-   - [Website](https://fleshjack.com/)
+### Flurb! - $$ - EU
+   - [Website](https://flurb.me/)
 
-### Flurb! -  - EU
-   - [Website](https://flurb.eu/)
-
-### Foxy Rabbit Toys -  - US
-   - [Website](https://foxyrabbittoys.com/)
-   - [Twitter](https://twitter.com/foxyrabbittoys)
+### ⛔️ Foxy Rabbit Toys - $ - US
+   - [Website](http://www.foxyrabbittoys.com/)
+   - [Twitter](https://twitter.com/FoxyRabbitToys)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
 ### Freaky Fantasies -  - US
@@ -312,6 +304,10 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 
 ### Knotty Boy Toys -  - Canada
    - [Etsy](https://www.etsy.com/shop/KnottyBoyToys)
+
+### KreatureToys - $ - US
+   - [Etsy](https://www.etsy.com/shop/FantanumAdultToys)
+*Formerly Fantanum Adult Toys*
 
 ### Kudu Voodoo -  - US
    - [Website](https://kuduvoodoo.com/)
