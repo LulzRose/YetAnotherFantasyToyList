@@ -203,115 +203,102 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Twitter](https://twitter.com/FoxyRabbitToys)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
-### Freaky Fantasies -  - US
+### Freaky Fantasies - $ - US
    - [Etsy](https://www.etsy.com/shop/FreakyFantasies)
 
-### Frisk Toys -  - UK
+### Frisk Toys - $ - UK
    - [Website](https://frisktoys.com/)
    - [Twitter](https://twitter.com/frisktoys)
 
-### Frisky Labz -  - US
+### Frisky Labz - $$ - US
    - [Etsy](https://www.etsy.com/shop/FriskyLabz)
    - [Website](https://friskylabz.com/)
-   - [Twitter](https://twitter.com/friskylabz)
+   - [Twitter](https://twitter.com/FriskyLabz)
 
-### From the Edge Toys -  - US
-   - [Website](https://fromtheedgetoys.com/)
+### From the Edge Toys - $ - US
+   - [Website](https://from-the-edge.net/)
    - [Twitter](https://twitter.com/fromtheedgetoys)
 
-### Furry Style -  - Germany
-   - [Website](https://furrystyle.com/)
+### Gaudy Gryphon - $$ - UK
+   - [Website](https://www.gaudygryphon.com/)
+   - [Twitter](https://twitter.com/GaudyGryphon)
+   - [Instagram](https://www.instagram.com/gaudygryphontoys/)
 
-### Gaudy Gryphon‡ -  - UK
-   - [Website](https://gaudygryphon.com/)
-   - [Etsy](https://www.etsy.com/shop/GaudyGryphon)
-   - [Twitter](https://twitter.com/gaudygryphon)
-   - [Instagram](https://instagram.com/gaudygryphon)
-
-### Geeky Sex Toys‡ -  - Australia
+### Geeky Sex Toys‡ - $ - Australia
    - [Etsy](https://www.etsy.com/shop/GeekySexToys)
    - [Website](https://geekysextoys.com/)
-   - [Twitter](https://twitter.com/geekysextoys)
+   - [Twitter](https://twitter.com/Geeky_Sex_Toys)
 
-### Gelatinous Creations -  - US
+### Gelatinous Creations - $$ - US
    - [Etsy](https://www.etsy.com/shop/GelatinousCreations)
-   - [Twitter](https://twitter.com/gelatinouscreate)
+   - [Twitter](https://twitter.com/gelatinousc)
 
-### Gorilla Machine -  - Portugal
-   - [Website](https://gorillamachine.com/)
-   - [Twitter](https://twitter.com/gorillamachine)
+### Gorilla Machine - $ - Portugal
+   - [Website](https://gorilla-machine.com/)
+   - [Twitter](https://twitter.com/_gorillamachine)
 
-### Guilty Box -  - US
+### Guilty Box - $ - US
    - [Etsy](https://www.etsy.com/shop/GuiltyBox)
 
-### Happy Hole Toys -  - US
+### Happy Hole Toys - $ - US
    - [Website](https://happyholetoys.com/)
    - [Twitter](https://twitter.com/happyholetoys)
 
-### Happy Octopus Toys -  - UK
+### Happy Octopus Toys - $ - UK
    - [Etsy](https://www.etsy.com/shop/HappyOctopusToys)
 
-### High Fantasy Creations -  - US
+### High Fantasy Creations - $$$ - US
+[Website](https://highfantasycreations.myshopify.com/)
    - [Etsy](https://www.etsy.com/shop/HighFantasyCreations)
 
-### Hodgepodge Entourage -  - US
-   - [Etsy](https://www.etsy.com/shop/HodgepodgeEntourage)
-   - [Website](https://hodgepodgeentourage.com/)
-   - [Twitter](https://twitter.com/hodgepodgeento)
+### Hodgepodge Entourage - $$ - US
+   - [Etsy](https://www.etsy.com/shop/HodgePodgeEntourage)
+   - [Website](https://hodge-podge-entourage.com/)
+   - [Twitter](https://twitter.com/HodgePodgeEnt)
 
-### Horny Ram Adult Toys -  - US
-   - [Website](https://hornyramtoys.com/)
-   - [Twitter](https://twitter.com/hornyramtoys)
+### Horny Ram Adult Toys - $$ - US
+   - [Website](https://www.hornyramadulttoys.com/)
+   - [Twitter](https://twitter.com/HornyRamToys)
 
-### Howling Horrors -  - US
-   - [Etsy](https://www.etsy.com/shop/HowlingHorrors)
-   - [Twitter](https://twitter.com/howlinghorrors)
+### Howling Horrors - $$ - US
+   - [Etsy](https://www.etsy.com/shop/HowlingHorrorsToys)
+   - [Twitter](https://twitter.com/howling_horrors)
 
-### Howling Rabbit Hole -  - US
-   - [Twitter](https://twitter.com/howlingrabbith)
-   - [Instagram](https://instagram.com/howlingrabbithole)
+### Hyper Realistic Dildos - $$ - UK
+   - [Etsy](https://www.etsy.com/shop/hyperrealisticdildos)
 
-### Hyper Realistic Dildos -  - UK
-   - [Etsy](https://www.etsy.com/shop/HyperRealisticDildos)
-
-### Inumi Toys -  - Switzerland
+### Inumi Toys - $$$ - Switzerland
    - [Etsy](https://www.etsy.com/shop/InumiToys)
 
-### Ivy Toys -  - Germany
-   - [Etsy](https://www.etsy.com/shop/IvyToys)
+### Ivy Toys - $$ - Germany
+   - [Etsy](https://www.etsy.com/shop/ivytoys)
 
-### JackOToy -  - France
-   - [Etsy](https://www.etsy.com/shop/JackOToy)
+### JackOToy - $ - France
+   - [Etsy](https://www.etsy.com/shop/jackotoy)
 
-### John Thomas Toys↺ -  - UK
-   - [Etsy](https://www.etsy.com/shop/JohnThomasToys)
+### John Thomas Toys↺ - $ - UK
+   - [Etsy](https://www.etsy.com/shop/johnthomastoys)
 
-### JoyFlex Toys -  - Finland
-   - [Etsy](https://www.etsy.com/shop/JoyFlexToys)
-
-### Joy Stick Adult Toys -  - US
+### Joy Stick Adult Toys - $ - US
    - [Etsy](https://www.etsy.com/shop/JoyStickAdultToys)
 
-### Kink Forge -  - UK
-   - [Website](https://kinkforge.com/)
+### Kink Forge - $ - UK
+   - [Website](https://kinkforge.co.uk/)
 
-### Kisu and Friends -  - Finland
+### Kisu and Friends - $$ - Finland
    - [Website](https://kisuandfriends.com/)
    - [Twitter](https://twitter.com/kisuandfriends)
 
-### Kitsune Comforts -  - US
-   - [Twitter](https://twitter.com/KitsuneComforts)
-
-### Knotty Boy Toys -  - Canada
+### Knotty Boy Toys - $$ - Canada
    - [Etsy](https://www.etsy.com/shop/KnottyBoyToys)
 
 ### KreatureToys - $ - US
    - [Etsy](https://www.etsy.com/shop/FantanumAdultToys)
 *Formerly Fantanum Adult Toys*
 
-### Kudu Voodoo -  - US
-   - [Website](https://kuduvoodoo.com/)
-   - [Twitter](https://twitter.com/kuduvoodoo)
+### Kudu Voodoo - $$ - US
+   - [Website](https://kuduvoodoo.net/)
+   - [Twitter](https://twitter.com/kudu_voodoo)
 
 ### Lair of Lust -  - US
    - [Etsy](https://www.etsy.com/shop/LairofLust)
