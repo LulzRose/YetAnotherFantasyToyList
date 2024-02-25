@@ -160,145 +160,118 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
 ### Factory D - $ - US  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FactoryD) - [Twitter](https://twitter.com/factorydix)
 
-### Fantasticocks - $ - US
-   - [Etsy](https://www.etsy.com/shop/Fantasticocks)
-   - [Twitter](https://twitter.com/fantasticocks1)
-   - [Instagram](https://www.instagram.com/fantasticocks/)
+### Fantasticocks - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/Fantasticocks) - [Twitter](https://twitter.com/fantasticocks1) - [Instagram](https://www.instagram.com/fantasticocks/)
 
-### Fantasy Dangus - $$$$ - US
-   - [Etsy](https://www.etsy.com/shop/FantasyDangus)
+### Fantasy Dangus - $$$$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FantasyDangus)
 
-### Fantasy Grove - $$ - US
-   - [Website](https://fantasygrove.com/)
-   - [Twitter](https://twitter.com/GroveFantasy)
-   - [Instagram](https://www.instagram.com/fantasygrovetoys/)
+### Fantasy Grove - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://fantasygrove.com/) - [Twitter](https://twitter.com/GroveFantasy) - [Instagram](https://www.instagram.com/fantasygrovetoys/)
 
-### Faux Phallus - $$ - Australia
-   - [Website](https://fauxphallus.com.au/)
-   - [Twitter](https://twitter.com/fauxphallus)
+### Faux Phallus - $$ - Australia  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://fauxphallus.com.au/) - [Twitter](https://twitter.com/fauxphallus)
 
-### Fera Daemon - $$ - France
-   - [Website](https://fera-daemon.com/)
-   - [Twitter](https://twitter.com/Fera_Daemon)
-   - [Instagram](https://www.instagram.com/fera_daemon/)
+### Fera Daemon - $$ - France  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://fera-daemon.com/) - [Twitter](https://twitter.com/Fera_Daemon) - [Instagram](https://www.instagram.com/fera_daemon/)
 
-### Feralized Toys - $$ - Germany
-   - [Etsy](https://www.etsy.com/shop/feralizedtoys)
+### Feralized Toys - $$ - Germany  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/feralizedtoys)
 
-### Fetish Zone - $$ - US
-   - [Website](https://www.fetishzone.net/store/all-fetishzone-toys-c-419/)
+### Fetish Zone - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.fetishzone.net/store/all-fetishzone-toys-c-419/)
 
-### Fiendish Toys - $ - Canada
-   - [Etsy](https://www.etsy.com/ca/shop/FiendishToyCo)
-   - [Twitter](https://twitter.com/fiendish_toys)
+### Fiendish Toys - $ - Canada  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/ca/shop/FiendishToyCo) - [Twitter](https://twitter.com/fiendish_toys)
 
-### Fleshjack - $$ - Canada
-   - [Website](https://www.fleshjack.ca/)
+### Fleshjack - $$ - Canada  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.fleshjack.ca/)
 
-### Flurb! - $$ - EU
-   - [Website](https://flurb.me/)
+### Flurb! - $$ - EU  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://flurb.me/)
 
-### ⛔️ Foxy Rabbit Toys - $ - US
-   - [Website](http://www.foxyrabbittoys.com/)
-   - [Twitter](https://twitter.com/FoxyRabbitToys)
+### ⛔️ Foxy Rabbit Toys - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](http://www.foxyrabbittoys.com/) - [Twitter](https://twitter.com/FoxyRabbitToys)  
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
-### Freaky Fantasies - $ - US
-   - [Etsy](https://www.etsy.com/shop/FreakyFantasies)
+### Freaky Fantasies - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FreakyFantasies)
 
-### Frisk Toys - $ - UK
-   - [Website](https://frisktoys.com/)
-   - [Twitter](https://twitter.com/frisktoys)
+### Frisk Toys - $ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://frisktoys.com/) - [Twitter](https://twitter.com/frisktoys)
 
-### Frisky Labz - $$ - US
-   - [Etsy](https://www.etsy.com/shop/FriskyLabz)
-   - [Website](https://friskylabz.com/)
-   - [Twitter](https://twitter.com/FriskyLabz)
+### Frisky Labz - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FriskyLabz) - [Website](https://friskylabz.com/) - [Twitter](https://twitter.com/FriskyLabz)
 
-### From the Edge Toys - $ - US
-   - [Website](https://from-the-edge.net/)
-   - [Twitter](https://twitter.com/fromtheedgetoys)
+### From the Edge Toys - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://from-the-edge.net/) - [Twitter](https://twitter.com/fromtheedgetoys)
 
-### Gaudy Gryphon - $$ - UK
-   - [Website](https://www.gaudygryphon.com/)
-   - [Twitter](https://twitter.com/GaudyGryphon)
-   - [Instagram](https://www.instagram.com/gaudygryphontoys/)
+### Gaudy Gryphon - $$ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.gaudygryphon.com/) - [Twitter](https://twitter.com/GaudyGryphon) - [Instagram](https://www.instagram.com/gaudygryphontoys/)
 
-### Geeky Sex Toys‡ - $ - Australia
-   - [Etsy](https://www.etsy.com/shop/GeekySexToys)
-   - [Website](https://geekysextoys.com/)
-   - [Twitter](https://twitter.com/Geeky_Sex_Toys)
+### Geeky Sex Toys‡ - $ - Australia  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/GeekySexToys) - [Website](https://geekysextoys.com/) - [Twitter](https://twitter.com/Geeky_Sex_Toys)
 
-### Gelatinous Creations - $$ - US
-   - [Etsy](https://www.etsy.com/shop/GelatinousCreations)
-   - [Twitter](https://twitter.com/gelatinousc)
+### Gelatinous Creations - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/GelatinousCreations) - [Twitter](https://twitter.com/gelatinousc)
 
-### Gorilla Machine - $ - Portugal
-   - [Website](https://gorilla-machine.com/)
-   - [Twitter](https://twitter.com/_gorillamachine)
+### Gorilla Machine - $ - Portugal  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://gorilla-machine.com/) - [Twitter](https://twitter.com/_gorillamachine)
 
-### Guilty Box - $ - US
-   - [Etsy](https://www.etsy.com/shop/GuiltyBox)
+### Guilty Box - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/GuiltyBox)
 
-### Happy Hole Toys - $ - US
-   - [Website](https://happyholetoys.com/)
-   - [Twitter](https://twitter.com/happyholetoys)
+### Happy Hole Toys - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://happyholetoys.com/) - [Twitter](https://twitter.com/happyholetoys)
 
-### Happy Octopus Toys - $ - UK
-   - [Etsy](https://www.etsy.com/shop/HappyOctopusToys)
+### Happy Octopus Toys - $ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/HappyOctopusToys)
 
-### High Fantasy Creations - $$$ - US
-[Website](https://highfantasycreations.myshopify.com/)
-   - [Etsy](https://www.etsy.com/shop/HighFantasyCreations)
+### High Fantasy Creations - $$$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://highfantasycreations.myshopify.com/) - [Etsy](https://www.etsy.com/shop/HighFantasyCreations)
 
-### Hodgepodge Entourage - $$ - US
-   - [Etsy](https://www.etsy.com/shop/HodgePodgeEntourage)
-   - [Website](https://hodge-podge-entourage.com/)
-   - [Twitter](https://twitter.com/HodgePodgeEnt)
+### Hodgepodge Entourage - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/HodgePodgeEntourage) - [Website](https://hodge-podge-entourage.com/) - [Twitter](https://twitter.com/HodgePodgeEnt)
 
-### Horny Ram Adult Toys - $$ - US
-   - [Website](https://www.hornyramadulttoys.com/)
-   - [Twitter](https://twitter.com/HornyRamToys)
+### Horny Ram Adult Toys - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://www.hornyramadulttoys.com/) - [Twitter](https://twitter.com/HornyRamToys)
 
-### Howling Horrors - $$ - US
-   - [Etsy](https://www.etsy.com/shop/HowlingHorrorsToys)
-   - [Twitter](https://twitter.com/howling_horrors)
+### Howling Horrors - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/HowlingHorrorsToys) - [Twitter](https://twitter.com/howling_horrors)
 
-### Hyper Realistic Dildos - $$ - UK
-   - [Etsy](https://www.etsy.com/shop/hyperrealisticdildos)
+### Hyper Realistic Dildos - $$ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/hyperrealisticdildos)
 
-### Inumi Toys - $$$ - Switzerland
-   - [Etsy](https://www.etsy.com/shop/InumiToys)
+### Inumi Toys - $$$ - Switzerland  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/InumiToys)
 
-### Ivy Toys - $$ - Germany
-   - [Etsy](https://www.etsy.com/shop/ivytoys)
+### Ivy Toys - $$ - Germany  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/ivytoys)
 
-### JackOToy - $ - France
-   - [Etsy](https://www.etsy.com/shop/jackotoy)
+### JackOToy - $ - France  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/jackotoy)
 
-### John Thomas Toys↺ - $ - UK
-   - [Etsy](https://www.etsy.com/shop/johnthomastoys)
+### John Thomas Toys↺ - $ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/johnthomastoys)
 
-### Joy Stick Adult Toys - $ - US
-   - [Etsy](https://www.etsy.com/shop/JoyStickAdultToys)
+### Joy Stick Adult Toys - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/JoyStickAdultToys)
 
-### Kink Forge - $ - UK
-   - [Website](https://kinkforge.co.uk/)
+### Kink Forge - $ - UK  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://kinkforge.co.uk/)
 
-### Kisu and Friends - $$ - Finland
-   - [Website](https://kisuandfriends.com/)
-   - [Twitter](https://twitter.com/kisuandfriends)
+### Kisu and Friends - $$ - Finland  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://kisuandfriends.com/) - [Twitter](https://twitter.com/kisuandfriends)
 
-### Knotty Boy Toys - $$ - Canada
-   - [Etsy](https://www.etsy.com/shop/KnottyBoyToys)
+### Knotty Boy Toys - $$ - Canada  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/KnottyBoyToys)
 
-### KreatureToys - $ - US
-   - [Etsy](https://www.etsy.com/shop/FantanumAdultToys)
-*Formerly Fantanum Adult Toys*
+### KreatureToys - $ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Etsy](https://www.etsy.com/shop/FantanumAdultToys)  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*Formerly Fantanum Adult Toys*
 
-### Kudu Voodoo - $$ - US
-   - [Website](https://kuduvoodoo.net/)
-   - [Twitter](https://twitter.com/kudu_voodoo)
+### Kudu Voodoo - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://kuduvoodoo.net/) - [Twitter](https://twitter.com/kudu_voodoo)
 
 ### Lair of Lust -  - US
    - [Etsy](https://www.etsy.com/shop/LairofLust)
