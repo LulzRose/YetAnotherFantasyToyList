@@ -611,6 +611,9 @@ Note for Github Staff, this repository is a master list of fantasy sex toys for 
    - [Website](https://zetapaws.com/)
 &nbsp;&nbsp;&nbsp;&nbsp;&nbsp;*See notes at bottom of list.*
 
+### Zeth Toys - $$ - US  
+&nbsp;&nbsp;&nbsp;&nbsp;&nbsp;[Website](https://zeth.toys/)
+
 ### Zlotech -  - Netherlands
    - [Etsy](https://www.etsy.com/shop/Zlotech)
    - [Twitter](https://twitter.com/zlotechtoys)
